@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AUSJ811024HCSGNN06
+AUSJ811024HCSGNN06
